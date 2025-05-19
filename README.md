@@ -4,7 +4,7 @@
 📞 (+1) 415-815-6368  
 ✉️ zhiyunqi1226@163.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/verina-qi)  
-💻 [GitHub](https://github.com/verina-qi-resume) 
+💻 [GitHub](https://github.com/verinaqi) 
 
 ---
 
